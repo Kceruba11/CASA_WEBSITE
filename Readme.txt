@@ -1,6 +1,6 @@
 Thanks for downloading this template!
 
-Template Name: Eventix
-Template URL: https://bootstrapmade.com/eventix-bootstrap-events-website-template/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+Template Name: CASA AKWETE STUDENT SUBMIT 2025 
+Author: ERUBA, KELECHI GOODLUCK
+Email: kceruba4@gmail.com
+License: https://web.facebook.com/kelechi.eruba.2025 OR CALL +2348080966062
